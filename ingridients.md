@@ -1,0 +1,29 @@
+ingrideints required to make it 
+
+1 cup butter, softened
+
+3 cups white sugar
+
+6 large eggs eggs
+
+1 ounce red food coloring
+
+3 tablespoons unsweetened cocoa powder
+
+3 cups all-purpose flour
+
+1 cup buttermilk
+
+1 teaspoon vanilla extract
+
+½ teaspoon salt
+
+1 teaspoon baking soda
+
+1 tablespoon white vinegar
+
+2 (8 ounce) packages cream cheese
+
+12 ounces white chocolate
+
+1 cup butter, softened
